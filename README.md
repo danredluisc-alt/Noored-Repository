@@ -1,2 +1,2 @@
 # Noored-Repository
-JUST DOING NORMAL AND IM NEWBIE HERE IN GITHUB
+Hi Guys Am Dan
